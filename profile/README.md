@@ -1,0 +1,1 @@
+# Skripti ry - Tietojenkäsittelytiede
